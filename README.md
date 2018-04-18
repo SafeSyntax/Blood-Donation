@@ -109,7 +109,7 @@ Note: রক্তদানের আগে কেউ টাকা দাবী 
 
 
 
-Credit and Referencesছ
+Credit and References:
 http://www.kalerkantho.com/print-edition/doctor-acen/2017/02/25/467592
 http://bdrupcare.blogspot.com/2014/11/blog-post_37.html
 
